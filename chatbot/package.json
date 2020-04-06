@@ -1,0 +1,17 @@
+{
+  "name": "rushjettv-chatbot",
+  "version": "0.0.1",
+  "description": "Chat bot for ol RushJetTV",
+  "main": "chat.js",
+  "scripts": {
+    "start": "node chat.js"
+  },
+  "dependencies": {
+    "xmlhttprequest": "1.8.0",
+    "tmi.js": "^1.2.1"
+  },
+  "engines": {
+    "node": "8.x"
+  },
+  "license": "MIT"
+}
