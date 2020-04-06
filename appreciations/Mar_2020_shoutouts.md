@@ -1,6 +1,6 @@
 # March 2020 Monthly Shoutouts!
 
-![Woo](https://tenor.com/view/cheering-minions-despicable-me-gif-3457155)
+![Woo](https://tenor.com/view/cheering-minions-despicable-me-gif-3457155.gif)
 
 ---
 ## Top Gifted Subs
