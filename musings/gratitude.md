@@ -1,6 +1,6 @@
 # __Gratitude Log__
 
-### [4/13]
+### [4/14]
 
 #### I am grateful for...
  - Today I was grateful for a tasty dinner we ordered out
