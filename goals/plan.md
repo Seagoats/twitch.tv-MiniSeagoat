@@ -12,6 +12,8 @@ This week I want
 - At least half my IG posts this week are about Content
 - Explore a video on a subject I talk about
 - Get Organized!! Notes, Trello, GitHub
+- Community Nights Idea
+ - First Interview?
 
 #### TODO List:
 - Stream Alerts, FINISH THESE
