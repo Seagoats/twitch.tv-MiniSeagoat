@@ -3,6 +3,16 @@
 ### [4/13]
 
 #### I am grateful for...
+ - Today I was grateful for a tasty dinner we ordered out
+ - Also that we moved some things and my GF was able to enjoy some videogames
+ - Also that I had a fun night playing Payday with friends
+
+##### Reflections
+Tonight was tough - I had to broach a hard subject.  Being this early on you experiment with a lot of things.  Some of them are great, others aren't.  Some start out great but lose steam over time.  It's hard to look at these things critically and ask yourself why they aren't working the way you expect them to.  Ultimately, we have to make hard decisions to maintain focus and push forward.  I am grateful for the people who've made the effort to include me.  In the same vein I think my path is different, and it took experimenting to learn that.
+
+### [4/13]
+
+#### I am grateful for...
  - Today I was grateful for my GF helping me get work done
  - For her helping me figure out stream ideas
  - For her baking AMAZING BROWNIES
