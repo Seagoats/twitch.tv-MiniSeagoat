@@ -1,5 +1,34 @@
 # __Gratitude Log__
 
+### [4/17]
+
+#### I am grateful for...
+ - Spending a good evening with my lady. Relaxing and fun. Not agonizing over work too much.
+ - Taking the time to support a friend.  
+ - seeing a community get some value out of my shit.
+
+##### Reflections
+ - Today really blew my mind.  Work reminded me I'm not invincible by any stretch of the imagination.  It also reminded me that sometimes I really do care about the folks I have the privilege of working with.  I'm reminded I do want to see them succeed - and that it is in my power to help with that.  
+ - Something else happened tonight, my lady and I spent some time watching a community friend together.  It. Blew. My. Mind.  This person was talking about genuine growth and self-awareness that they were building, partly motivated and inspired by my own content.  This is nuts.  Here it was, a genuine example of ONE person, who found value in what I've been doing.  It gives me a lot of hope.  If ONE person can find it compelling - I have to keep going and turn that into 10. And then 100. And so on.  Even more importantly though, I have to continue learning, and disseminating, and sharing.  This is the path.  The hardest part is intentionally taking each and every step.  It's not a binary choice to be made in a single day.  It's the culmination of a lifetime of micro choices.
+
+### [4/16]
+
+#### I am grateful for...
+ -
+
+##### Reflections
+ - this day sucked so much i didnt even write this till the day after lol... nuff said.  Stream went poorly.  I had zero energy and was really not proud of my own performance.
+
+### [4/15]
+
+#### I am grateful for...
+ - having some tasty ramen delivered for Dinner
+ - for having a really fun time playing videogames with just my lady
+ - Having the fortune to still comfortably afford and buy groceries relatively safely.
+
+##### Reflections
+ - Today certainly wasn't a 10x productive day. Work had me pretty discouraged, and that ended up hurting my whole day.  It's funny how at times I feel so at odds with work.   These are the kinds of days I struggle to put in 100%.  It's because deep down I don't really believe in it.  I wish these days I could be completely and fully devoted to my own goals.  And not that of someone elses'.
+
 ### [4/14]
 
 #### I am grateful for...
