@@ -1,5 +1,12 @@
 # __Gratitude Log__
 
+### [4/24]
+
+#### I am grateful for...
+ - THE WEEKEND
+ - a nice relaxing night where I didn't worry about anything, work or  stream
+ - a decent week altogether, work is getting to a good place, stream is changing direction relatively smoothly
+
 ### [4/22]
 
 #### I am grateful for...
