@@ -4,23 +4,19 @@
 \- Dwight D. Eisenhower
 
 
-
-### [__This Week__ - 04/13 ]
-
-This week I want
-- Content Content Content
-- At least half my IG posts this week are about Content
-- Explore a video on a subject I talk about
-- Get Organized!! Notes, Trello, GitHub
-- Community Nights Idea
- - First Interview?
+### [__This Week__ - 04/20 ]
+- New show formats and focus
+- write out full show content, plan it out ahead 
 
 #### TODO List:
+- Get another blog post written
+- Work on channel trailer
 - Stream Alerts, FINISH THESE
 - revisit Audio 2.0?
 - StreamDeck, think through better buttons for cooler effects.
 
 #### Show ideas:
+- Identity
 - Making Plans, Write them down!
 - Blessings Vs Curses, a DnD take
 
@@ -35,3 +31,13 @@ I'd like to refine my content to so that it feels consistent across platforms.  
 I think I need to do more outreach so that I can make developing other people's goals part of my content too.
 
 #### [Past Weeks]
+
+##### [ 04/13 ]
+
+This week I want
+- Content Content Content
+- At least half my IG posts this week are about Content
+- Explore a video on a subject I talk about
+- Get Organized!! Notes, Trello, GitHub
+- Community Nights Idea
+ - First Interview?

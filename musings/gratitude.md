@@ -1,5 +1,17 @@
 # __Gratitude Log__
 
+### [4/22]
+
+#### I am grateful for...
+ - A strong Monday show where I planned content, and spoke about it
+ - Getting a new lease on the direction of my stream
+ - always for the support of my lady
+
+##### Reflections
+ - It's been several days since I logged some gratitude.  Part of it is just ending some days really late.  Other times it's just ending the day in a less than stellar mindset to reflect.  It's important to do though, and I'm glad to be writing this now.  I realize writing is becoming more and more of a necessity in my current direction.  Because of that exercises like this that don't seem relevant on the surface are still valuable.
+ - I'm glad to be moving towards a new phase of content.  It's scary that I'm staking a lot of channel growth on this new direction, but the truth I have to continually remind myself of is that I'm focused on creating value - not just friends.
+ - I'm excited to start interviewing the community.  I have high hopes.
+
 ### [4/17]
 
 #### I am grateful for...
