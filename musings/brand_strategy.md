@@ -7,11 +7,11 @@ To Create and distribute valuable motivational content to young adults that will
 
 1. Research, consume, and distill existing motivational content.
 2. Syndicate content to multiple platforms through endemic means.
- - Twitter - hot takes and short opinions
- - Instagram - visually appealing content, with low consumer time investment
- - Youtube - high value, dense, concise information, enhanced digitally
- - Podcasts - Audio-only, similar to youtube, but geared more conversational
- - Facebook - reposts of videos, and existing content
+   * Twitter - hot takes and short opinions
+   * Instagram - visually appealing content, with low consumer time investment
+   * Youtube - high value, dense, concise information, enhanced digitally
+   * Podcasts - Audio-only, similar to youtube, but geared more conversational
+   * Facebook - reposts of videos, and existing content
 3. Stream on Twitch to engage Live with audience grown through #2.
 4. Continue discussions and outreach through Discord.
 
