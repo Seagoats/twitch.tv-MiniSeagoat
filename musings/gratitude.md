@@ -1,5 +1,15 @@
 # __Gratitude Log__
 
+### [4/26]
+
+#### I am grateful for...
+ - A productive day
+ - my supportive Lady
+ - a tasty dinner
+
+##### Reflections
+ - I'm so thankful for my lady's willingness and generosity to help support my endeavors.  Whether it be streaming, content creation, or just plain continued growth - she's supported me in all of this.
+
 ### [4/24]
 
 #### I am grateful for...
