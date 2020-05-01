@@ -68,6 +68,8 @@
 
 - **izmomu** - 1 month
 
+- **Heeoii** - 1 month
+
 - **rngbumblebee** - 1 month
 
 - **lurkette26** - 1 month
