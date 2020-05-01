@@ -6,15 +6,15 @@
 ## Top Gifted Subs
 - ![GoldBadge](https://static.twitchcdn.net/assets/GiftBadge-Gold_36-95a1d905aec717abc9b3.png) **[StaffDog](https://twitch.tv/StaffDog) - 2** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
-- ![SilverBadge](https://static.twitchcdn.net/assets/GiftBadge-Silver_36-3c828b0fbe79e3caa087.png) **[WL_S1N](https://www.twitch.tv/wl_s1n) - 2** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
+- ![GoldBadge](https://static.twitchcdn.net/assets/GiftBadge-Gold_36-95a1d905aec717abc9b3.png) **[WL_S1N](https://www.twitch.tv/wl_s1n) - 2** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
-- ![BronzeBadge](https://static.twitchcdn.net/assets/GiftBadge-Bronze_36-cb90a834abc7154e39f8.png) **[Chewys_Savage](https://www.twitch.tv/Chewys_Savage) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
+- ![SilverBadge](https://static.twitchcdn.net/assets/GiftBadge-Silver_36-3c828b0fbe79e3caa087.png) **[Chewys_Savage](https://www.twitch.tv/Chewys_Savage) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
-- ![BronzeBadge](https://static.twitchcdn.net/assets/GiftBadge-Bronze_36-cb90a834abc7154e39f8.png) **[RNGbumblebee](https://www.twitch.tv/RNGbumblebee) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
+- ![SilverBadge](https://static.twitchcdn.net/assets/GiftBadge-Silver_36-3c828b0fbe79e3caa087.png) **[RNGbumblebee](https://www.twitch.tv/RNGbumblebee) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
-- ![BronzeBadge](https://static.twitchcdn.net/assets/GiftBadge-Bronze_36-cb90a834abc7154e39f8.png) **[Celtiverse](https://www.twitch.tv/Celtiverse) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
+- ![SilverBadge](https://static.twitchcdn.net/assets/GiftBadge-Silver_36-3c828b0fbe79e3caa087.png) **[Celtiverse](https://www.twitch.tv/Celtiverse) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
-- ![BronzeBadge](https://static.twitchcdn.net/assets/GiftBadge-Bronze_36-cb90a834abc7154e39f8.png) **[SamuelAFW](https://www.twitch.tv/SamuelAFW) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
+- ![SilverBadge](https://static.twitchcdn.net/assets/GiftBadge-Silver_36-3c828b0fbe79e3caa087.png) **[SamuelAFW](https://www.twitch.tv/SamuelAFW) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
 ---
 ## Top Cheerers
