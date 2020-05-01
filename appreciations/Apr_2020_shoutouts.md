@@ -14,6 +14,7 @@
 
 - ![BronzeBadge](https://static.twitchcdn.net/assets/GiftBadge-Bronze_36-cb90a834abc7154e39f8.png) **[Celtiverse](https://www.twitch.tv/Celtiverse) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
+- ![BronzeBadge](https://static.twitchcdn.net/assets/GiftBadge-Bronze_36-cb90a834abc7154e39f8.png) **[SamuelAFW](https://www.twitch.tv/SamuelAFW) - 1** ![gifts](https://static-cdn.jtvnw.net/badges/v1/f1d8486f-eb2e-4553-b44f-4d614617afc1/2)
 
 ---
 ## Top Cheerers
