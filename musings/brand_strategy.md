@@ -8,8 +8,18 @@ To Create and distribute valuable motivational content to young adults that will
 1. Research, consume, and distill existing motivational content.
 2. Syndicate content to multiple platforms through endemic means.
    * Twitter - hot takes and short opinions
+     - New Strategy: finding and interacting with space leaders
+     - 2-3 retweets a week
+     - 2-3 "thought-provoking" responses
+     - 2-3 "original content" tweets
    * Instagram - visually appealing content, with low consumer time investment
+     - 3-4 "visual" posts, OC, motivational in nature
+     - 2-3 video clips, streamed content, talking
+     - occasional Story posts
+     - Week at a glance post
    * Youtube - high value, dense, concise information, enhanced digitally
+     - 1 every 2 weeks
+     - ~4-8 hrs production time
    * Podcasts - Audio-only, similar to youtube, but geared more conversational
    * Facebook - reposts of videos, and existing content
 3. Stream on Twitch to engage Live with audience grown through #2.

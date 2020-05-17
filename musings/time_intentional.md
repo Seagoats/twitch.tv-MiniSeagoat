@@ -48,3 +48,10 @@ Enter - **Prioritization**!
 
 
 *- your health***
+
+# The Takeaway:
+## Today is about making sure you're spending time on the things that are important to you.
+### Sometimes we lose sight of things in the moment
+### Sometimes Unexpected Occurrences Disrupt our Flow
+### Being Intentional With Your Time Means Making Time.  Perhaps when its most convenient and top of mind.
+### Ensure the important things are getting Your Time.
